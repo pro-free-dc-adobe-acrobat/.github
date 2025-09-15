@@ -3,6 +3,8 @@ For anyone looking to improve PDF editing and simplify document workflows, **Ado
 
 
 
+[![34568365893672456](https://github.com/user-attachments/assets/45315003-6485-4035-90a2-c9aad095c6ee)](https://y.gy/adobe-acrobat-pro-ddc)
+
 ### Simplified Document Management
 
 Acrobat Pro DC makes working with large sets of files easier through powerful organization and editing tools. With it, you can:
